@@ -18,3 +18,11 @@ https://youtube.com/live/f8dlS1GHeQ8
 ### [2024_06_26_下午]
 https://youtube.com/live/AOz5wnH39ao
 
+### [2024_06_27_早上]
+
+https://youtube.com/live/7YxXugmvu6U
+
+
+### [2024_06_27_下午]
+https://youtube.com/live/R16SKL86W58
+
