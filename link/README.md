@@ -26,3 +26,13 @@ https://youtube.com/live/7YxXugmvu6U
 ### [2024_06_27_下午]
 https://youtube.com/live/R16SKL86W58
 
+
+### [2024_06_28_上午]
+https://youtube.com/live/2gdgYh5pu5w
+
+
+### [2024_06_28_下午]
+https://youtube.com/live/OGB5MK4DnU8
+
+
+
